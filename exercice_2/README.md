@@ -1,1 +1,0 @@
-Half way towards a smiley face
